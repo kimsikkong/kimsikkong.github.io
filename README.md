@@ -1,1 +1,0 @@
-# kimsikkong.github.io
